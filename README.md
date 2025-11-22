@@ -23,7 +23,7 @@ CAPM® – PMI
 
 🌍 Languages
 
-🇫🇷 French • 🇦🇪 Arabic • 🇬🇧 English • 🇵🇱 Polish (beginner)
+🇫🇷 French • 🇦🇪 Arabic • 🇬🇧 English • 🇵🇱 Polish 
 
 📫 Connect with Me
 
